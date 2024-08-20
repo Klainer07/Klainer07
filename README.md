@@ -1,1 +1,1 @@
-"I Don't Even See the Code, All I see is Blond, Brunette, Redhead"
+"I don't even see the code anymore , all i see is blonde, brunette, redhead"
